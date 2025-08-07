@@ -1,0 +1,1 @@
+Accurate Cyber Defense is a leading Malawian cyber security startup offering advanced protection for businesses and institutions. We specialize in threat detection, network security, data privacy, and cyber risk management.
